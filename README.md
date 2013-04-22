@@ -1,0 +1,4 @@
+Earthcoin
+=========
+
+Earthcoin
